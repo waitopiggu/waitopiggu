@@ -1,0 +1,5 @@
+- 👋 Hi, I’m a waving-hand-emoji
+- 👀 I’m interested in eyes-emoji
+- 🌱 I’m currently learning seedlings-emoji
+- 💞️ I’m looking to collaborate on revolving-hearts-emoji
+- 📫 How to reach me: Please, do not and fuck off
